@@ -1,0 +1,58 @@
+# Remy Zero – Save Me
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I feel my wings have
+broken in your hands
+I feel the words
+unspoken inside
+And they pull you under
+And I will give you
+anything you want, oh
+You are all I wanted
+All my dreams are fallin' down
+Crawlin' around
+and around and around
+Somebody save me
+Let your warm hands
+break right through it
+Somebody save me
+I don't care how you do it, just
+Stay, stay
+C'mon, I've been waiting for you
+
+I see the world has
+folded in your heart
+I feel the waves
+crash down inside
+And they pull me under
+And, I would give you
+anything you want, oh
+You are all I wanted
+All my dreams have fallin' down
+Crawlin' around
+and around and around
+Somebody save me
+Let your warm hands
+break right through it
+Somebody save me
+I don't care how you do it, just
+Stay, stay
+C'mon, I've been waiting for you
+
+All my dreams are
+on the ground
+Crawlin' around
+and around and around
+Somebody save me
+Let your warm hands
+break right through
+Somebody save me
+I don't care how you do it
+Just stay (stay with me)
+I made this whole world
+shine for you
+Just stay, stay
+C'mon, I'm still waiting for you
+```
